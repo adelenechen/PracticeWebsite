@@ -3,7 +3,7 @@ Art is commonly expressed in music, literature, and drawing, and is commonly not
 
 ### The Infamous Banana: _Comedian_
 Created by Maurizio Cattelan, _Comedian_ is a banana duct taped to a wall that sold for $120,000 and was eaten shortly after. Modern art of this form is notorius for being tools for money laundering. These art pieces, to an art critic (which I am not), are easy to find due to its lack of emotions that one would normally see from art. As such, it's popular consensus that _Comedian_ is what you see: a banana taped to a wall. Even so, some people claim that the art piece _does_ in fact, have meaning. The banana expresses the strangeness of how people place importance on material objects, or it may describe and ridicule how modern media treats modern art in reverence.
-[Link](https://www.vogue.com/article/the-120000-art-basel-banana-explained-maurizio-cattelan)
+You can find more information about the banana [here](https://www.vogue.com/article/the-120000-art-basel-banana-explained-maurizio-cattelan)
 
 ![image](https://user-images.githubusercontent.com/114519442/193483839-875662db-1753-4e94-a037-6d889bf7a2e0.png)
 
